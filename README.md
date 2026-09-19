@@ -1,5 +1,5 @@
 # 💫 About Me:
-New to programming but really passionate in Cybersecurity<br>Future CyberSecurity specialist<br>
+New to programming, Passionate in Software, Game, AI, and Cyber<br>
 
 
 ## 🌐 Socials:
